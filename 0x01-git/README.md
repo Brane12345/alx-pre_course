@@ -1,1 +1,1 @@
-Kratos is GOD OF WAR
+Kratos is still the best GOD OF WAR
